@@ -1,2 +1,1 @@
-# majulook
-Made you look!
+# Made you look, haha!
