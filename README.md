@@ -1,2 +1,2 @@
-# Made you look, Santi, haha!
+# Made you look, haha!
 <a href="http://majulook.com">majulook.com</a>
