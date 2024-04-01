@@ -1,4 +1,7 @@
-# Made you look, haha!
-<a href="http://majulook.com">majulook.com</a>
 
-(Also home of the Majulook prize.)
+![Frog with sunglasses emoji](https://cdn3.emoji.gg/emojis/5788-frog-planga.png)
+
+# Happy April Fools' Day!
+
+
+[majulook.com](http://majulook.com)
