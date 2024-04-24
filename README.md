@@ -1,7 +1,7 @@
 
 ![Frog with sunglasses emoji](https://cdn3.emoji.gg/emojis/5788-frog-planga.png)
 
-# Happy April Fools' Day!
+# Made you look, haha!
 
 
 [majulook.com](http://majulook.com)
